@@ -1,4 +1,4 @@
-# Making a Bed - A beginners Guide
+# Bed making - A beginners Guide
 ## Introduction
 After a good night's sleep, the last thing a person would want to do is to delay coffee intake by turning around before leaving the bedroom and spend untold seconds remaking what has already been made a day, week, or month before. Yet, when the bedroom is revisited at night, the unmade bed can introduce unwanted delays before the desired blanket and pillow poistioning is achieved. It is for this reason that I have decided to create this quick tutorial, which is designed to facilitate efficient bedroom exit in the morining, as well as sheet entry in the evening.
 ## Procedures
