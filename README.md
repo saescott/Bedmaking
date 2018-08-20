@@ -1,4 +1,4 @@
-# Bed making - A beginners Guide 
+# Bed Making - A Beginners Guide 
 
 ## Introduction 
 
