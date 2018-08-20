@@ -16,7 +16,7 @@ Returning the pillow to its optimal location upon wake-up can be the most crucia
 
 ### Duvet 
 
-*This guide only deals with duvet replacement. Blanket and flat sheet configurations have been deemed unacceptable by the **International Bed Making Association's 1947 convention proceedings**, and have been deemed acceptable only in government hospitals, mental institutions, and some sleep-away camps*.
+*This guide only deals with duvet replacement. Blanket and flat sheet configurations have been deemed unacceptable by the **International Bedmaking Association's 1947 convention proceedings**, and have been deemed acceptable only in government hospitals, mental institutions, and some sleep-away camps*.
 
 1. With both hands, grab the foot-side corners of the duvet. 
 2. Shake vigorously with a whipping motion towards the pillow side of the bed. This operation is designed to straighten out the blanket that is present within the duvet cover. 
