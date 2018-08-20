@@ -2,13 +2,13 @@
 
 ## Introduction 
 
-After a good night's sleep, the last thing a person would want to do is to delay coffee intake by turning around before leaving the bedroom spending untold seconds remaking what has already been made a day, week, or month before. Yet, when the bedroom is revisited at night, the unmade bed can introduce unwanted delays before the desired blanket and pillow positioning is achieved. It is for this reason that I have decided to create this quick tutorial, which is designed to facilitate efficient bedroom exit in the morning, as well as sheet entry in the evening.
+After a good night's sleep, the last thing that a person would want to do is to delay coffee intake by turning around before leaving the bedroom, spending untold seconds remaking what has already been made a day, week, or month before. Yet, when the bedroom is revisited at night, the unmade bed can introduce unwanted delays before the desired blanket and pillow positioning is achieved. It is for this reason that I have written this quick tutorial, designed to facilitate efficient morning bedroom exit, as well as favorable sheet entry in the evening.
 
 ## Procedures 
 
 ### Pillow 
 
-Returning the pillow to its optimal location upon wake-up can be the most crucial component of an effortless return to the arms of Morpheus the following evening. To return the pillow:
+Returning the pillow to its optimal location upon wake-up can be the most crucial component of an effortless return to the arms of Morpheus the following evening. To optimally return the pillow:
 1. Grab hold of both sides of the pillow. 
 2. Lift the pillow off the bed. 
 	*Pushing or sliding the pillow may result in pillowcase creases*. 
