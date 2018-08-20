@@ -18,5 +18,6 @@ Returning the pillow to its optimal location upon wake-up can be the most crucia
 ### Recommendations
 * Optimal results are guaranteed using 100% cotton sheets. Any other sheet composition is highly discouraged.
 * Use of and placement of multiple pillows is beyond the scope of this guide
+* An excellent instructional video can be found at [One Kings Lane: How to Make the Perfect Bed](https://www.youtube.com/watch?v=h8jIxuO2APE)
 ### Conclusion
 Good night!
