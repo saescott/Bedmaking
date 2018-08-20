@@ -11,7 +11,7 @@ After a good night's sleep, the last thing a person would want to do is to delay
 Returning the pillow to its optimal location upon wake-up can be the most crucial component of an effortless return to the arms of Morpheus the following evening. To return the pillow:
 1. Grab hold of both sides of the pillow. 
 2. Lift the pillow off the bed. 
-	*Pushing or sliding the pillow mar result in pillowcase creases* 
+	*Pushing or sliding the pillow may result in pillowcase creases* 
 3. Place the pillow at the exact spot that is preferred upon evening bed re-entry.
 
 ### Duvet 
